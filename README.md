@@ -1,2 +1,0 @@
-# Amado
-Furniture 
